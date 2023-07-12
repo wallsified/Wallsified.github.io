@@ -1,1 +1,0 @@
-# Wallsified.github.io
